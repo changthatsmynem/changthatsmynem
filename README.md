@@ -1,6 +1,7 @@
 ### Hi  👋  Please  call  me  'CHANG'  🐘  💻
 
-![PointedFrequentImperatorangel-size_restricted](https://github.com/changthatsmynem/changthatsmynem/assets/90864879/8aa931d0-3012-4b28-a7fa-1701593ab047)
+![PointedFrequentImperatorangel-size_restricted](https://github.com/changthatsmynem/changthatsmynem/assets/90864879/8aa931d0-3012-4b28-a7fa-1701593ab047)![tumblr_6f3cdcacd367af92338a938c1eef19d7_92019713_500](https://github.com/changthatsmynem/changthatsmynem/assets/90864879/c6beede2-5abd-4edd-9b9f-8b132412bdef)
+
 
 Languages:
 
