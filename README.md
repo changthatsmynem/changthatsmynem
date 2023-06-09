@@ -1,4 +1,4 @@
-### Hi 👋 Please call me 'CHANG' 🐘 💻
+### Hi  👋  Please  call  me  'CHANG'  🐘  💻
 
 ![PointedFrequentImperatorangel-size_restricted](https://github.com/changthatsmynem/changthatsmynem/assets/90864879/8aa931d0-3012-4b28-a7fa-1701593ab047)
 
@@ -7,8 +7,6 @@ Languages:
 <!--HTML5 -->
 
 <!-- Figma -->
-![figma](https://github.com/changthatsmynem/changthatsmynem/assets/90864879/e763622e-6d6c-40f0-9653-2d7501bbc41f)
-
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
